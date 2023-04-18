@@ -1,1 +1,1 @@
-# PersonalResume (OUTDATED)
+[PersonalResume (UPDATED)](Tanner-Byers-Resume.pdf)
